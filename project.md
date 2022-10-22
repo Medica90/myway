@@ -13,4 +13,4 @@
 
 <<No pain, no gain>>
 
-![Типо мотивация](https://s0.rbk.ru/v6_top_pics/media/img/8/87/755894871407878.jpg)
+![Веселая картинка](funsport.jpg)
