@@ -11,6 +11,6 @@
 
 <Многие люди терпят неудачу только потому, что  сдаются в двух шагах от успеха>
 
-<<No pain, no gain>>
+<<No pain, no gain!!!>> 
 
 ![Веселая картинка](https://fydi.ru/wp-content/uploads/2021/06/sport-fitnes-63.jpg)
