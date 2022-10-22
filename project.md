@@ -11,3 +11,5 @@
 <<No pain, no gain!!!>> 
 
 ![Веселая картинка](https://fydi.ru/wp-content/uploads/2021/06/sport-fitnes-63.jpg)
+
+![Картиночка](https://img.freepik.com/premium-vector/fun-and-cute-fruits-and-vegetables-do-sport_507816-363.jpg)
