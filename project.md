@@ -13,4 +13,4 @@
 
 <<No pain, no gain>>
 
-![Веселая картинка](funsport.jpg)
+![Веселая картинка](https://fydi.ru/wp-content/uploads/2021/06/sport-fitnes-63.jpg)
